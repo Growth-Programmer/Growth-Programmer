@@ -1,1 +1,1 @@
-**A passionate programmer dedicated to growth**✨
+**A passionate, growing programmer**✨
